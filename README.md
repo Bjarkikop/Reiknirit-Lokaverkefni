@@ -1,1 +1,1 @@
-# Reiknirit-Lokaverkefni
+# Bjarki Ellertsson
